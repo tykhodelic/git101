@@ -7,3 +7,4 @@
 行ってきます、GitHub!
 ただいま、GitHub!
 いただきます、GitHub!
+ごちそうさま、GitHub!
